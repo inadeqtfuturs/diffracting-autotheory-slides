@@ -1,1 +1,2 @@
-# diffracting-autotheory-slides
+# provisional-notes-posthuman-politics
+# provisional-notes-slides
